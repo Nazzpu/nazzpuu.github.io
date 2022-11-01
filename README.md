@@ -1,2 +1,2 @@
-# nazzpuu.github.io
+# DANIEL
 Практика
